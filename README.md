@@ -5,14 +5,19 @@ March 2025
 📢 INSIGHT PERFORMANCE OF BEKASI EXPEDITION (March 9 - 15, 2025) 🚀
 
 🔹 Total Revenue: Rp. 14,998,240 💰
+
 🔹 Total Deliveries: 338 Shipments 📦
+
 🔹 Top Taker: 🏆 Dedi with 63 pickups
+
 🔹 Top Sender: 🏆 Citra with 43 shipments
 
 💡 Key Insights from the Data:
 
 📊 Courier Performance: 
+
 • Dedi and Fajar are the top couriers with the highest number of pickups (63 & 61 packages) 🏍️🔥
+
 • Citra is the most active sender with 43 packages sent 🚀
 
 ⏳ Busiest Time:
